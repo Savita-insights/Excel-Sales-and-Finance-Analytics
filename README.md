@@ -14,7 +14,7 @@
 
 - With a diverse product portfolio, AtliQ not only **sells** but also **manufactures** its own products, ensuring quality and innovation.  
 - To maximize reach, the company collaborates with **retail giants** such as **Croma** and **Best Buy**, along with popular **online marketplaces** like **Flipkart** and **Amazon**.  
-- These distribution channels serve as a **bridge** between Atlas Co. and end consumers, ensuring availability and accessibility across multiple markets.  
+- These distribution channels serve as a **bridge** between AtliQ and end consumers, ensuring availability and accessibility across multiple markets.  
 
 ---
 
